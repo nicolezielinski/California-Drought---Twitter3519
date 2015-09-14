@@ -25,4 +25,21 @@ http://trove.nla.gov.au/ndp/del/article/70608463 … ", @SteveSGoddard
 
 "4 Reasons Why El Nino Won’t Solve California’s Epic Drought - On the heels of the hottest month on record globally... http://ow.ly/33HF4K", @wilsonvoight
 
+"California’s #drought could be helped by El Nino, a periodic shift in #weather patterns - http://study.com/academy/lesson/the-pacific-decadal-oscillation-el-nino.html … ", @jjlesko
 
+"If California want to solve for the drought, just have @joneschristophe make a tee time. Guaranteed to rain.", @S5Quigs
+
+"Retweeted Los Angeles Times (@latimes):
+
+"These 192 drought maps show just how thirsty California has become... http://fb.me/4eXoVWsBl ", @eloycam2012
+
+"WSJ reporting on drought conditions (but in NY not California)
+
+Forecast: Sunny Skies, Followed by Water Restrictions
+http://www.wsj.com/articles/forecast-sunny-skies-followed-by-water-restrictions-1441410535 …", @jordanbrianl
+
+"Atlanta, I did not come all the way from a drought-ridden California for this low ass water pressure.", @deathtodickens
+
+"#California’s drought puts ancient sequoias under stress - no surprise given #Nestle is draining water aquifers http://gu.com/p/4c4k7/stw ", @Humdiha
+
+"Total fault of liberal's in California. They didn't foresee the drought severity and did not increase reservoirs. ", @misinsimilla
